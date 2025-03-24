@@ -75,7 +75,8 @@
 [丁学明: 网络爬虫？你可能面临的法律责任][23]
 
 # 爱好者
-![image](https://github.com/user-attachments/assets/d82b3a51-0675-4d40-8768-e836867d57e7)
+![image](https://github.com/user-attachments/assets/521b7815-7699-4d3d-892f-c07a450395de)
+
 
 
 
